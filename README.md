@@ -1,1 +1,0 @@
-# practicum-4or-payment
